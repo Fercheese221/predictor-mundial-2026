@@ -1,0 +1,1 @@
+# predictor-mundial-2026
